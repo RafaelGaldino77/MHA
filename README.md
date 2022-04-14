@@ -17,4 +17,4 @@ Celular: 11 981058750
 
 Instagram: https://www.instagram.com/rafael_galdi/?hl=pt-br
 
-Twitter: https://twitter.com/Sir_Ibrahimovic
+Twitter: https://twitter.com/Sir_Ibrahimovic 
